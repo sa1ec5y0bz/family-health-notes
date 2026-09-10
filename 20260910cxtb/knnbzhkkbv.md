@@ -398,23 +398,23 @@ PGT仅筛染色体，不着床还与内膜、免疫有关
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/zkpercyyto.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/lotdbmzyyl.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/irqhoiwzlx.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/jntyjswouc.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
+- [去美国做第三代试管婴儿专家带你避开8大坑，全程手把手攻略](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/zkpercyyto.md)
+- [美国第三代试管婴儿攻略：成功率、费用、避坑秘籍一站式全解](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
+- [美国第三代试管婴儿5步搞定：流程、费用与成功率全解析](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
+- [美国第三代试管婴儿终极手册：流程、费用、成功率全解析](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/lotdbmzyyl.md)
+- [揭秘！赴美做第三代试管婴儿的5大优势与避坑全攻略](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/irqhoiwzlx.md)
+- [揭秘美国第三代试管婴儿：成功率背后的真相与避坑全攻略](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/jntyjswouc.md)
+- [去美国做第三代试管前，你必须知道的7件事：避坑提效全攻略](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
 
 ## 推荐站点
 
-- [推荐阅读](https://www.danqiushen.com/134.html)
-- [推荐阅读](https://www.danqiushen.com/34.html)
-- [点击查看](https://www.danqiushen.com/122.html)
-- [推荐阅读](https://www.danqiushen.com/96.html)
-- [查看详情](https://www.danqiushen.com/163.html)
-- [点击查看](https://www.wuzhenzhi.cn/87.html)
-- [相关资讯](https://www.wuzhenzhi.cn/112.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/103.html)
+- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
+- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
+- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
+- [山东聊城市人民医院做试管吗要多少钱？附试管婴儿2万元补贴政策解读](https://www.wuzhenzhi.cn/120.html)
+- [西安试管婴儿多少钱一次？医保能报销吗？费用与报销全解析](https://www.wuzhenzhi.cn/121.html)
+- [做试管婴儿三次的成功案例有哪些视频？海外第三代试管婴儿成功案例分享](https://www.wuzhenzhi.cn/122.html)
+- [广西试管婴儿可以报销医保吗？2025最新政策与报销流程详解](https://www.wuzhenzhi.cn/123.html)
+- [山东省中医院西院区试管多少钱一个月费用？一次报销政策详解](https://www.wuzhenzhi.cn/124.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
