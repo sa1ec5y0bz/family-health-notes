@@ -32,21 +32,21 @@ hCG的测定在临床工作中应用广泛，不同疾病有不同的表现，�
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/rkzmnozbzp.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/qcxcwhkjpx.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/trcnfvxvcp.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/xhemefpcxw.md)
+- [美国第三代试管婴儿避坑指南：8大秘诀让成功率直线飙升](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/rkzmnozbzp.md)
+- [全流程手把手：赴美第三代试管婴儿必看完整攻略](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/qcxcwhkjpx.md)
+- [美国第三代试管婴儿，成功率到底有多高对比国内真相曝光](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
+- [赴美做第三代试管婴儿全流程攻略：成功率、费用、医院怎么选](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
+- [美国第三代试管婴儿全攻略：5大秘诀+3大避坑秘籍](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/trcnfvxvcp.md)
+- [美国第三代试管婴儿避坑指南：成功收获健康宝宝](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/xhemefpcxw.md)
 
 ## 推荐站点
 
-- [更多内容](https://www.danqiushen.com/95.html)
-- [更多内容](https://www.danqiushen.com/zhuyun/)
-- [详情点击](https://www.danqiushen.com/110.html)
-- [相关资讯](https://www.danqiushen.com/166.html)
-- [推荐阅读](https://www.wuzhenzhi.cn/77.html)
-- [推荐阅读](https://www.wuzhenzhi.cn/117.html)
-- [推荐阅读](https://www.wuzhenzhi.cn/74.html)
+- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
+- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
+- [思则凯多少钱一支——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/15.html)
+- [柳州妇幼第三代试管单胎多少钱？费用构成与影响因素详解](https://www.wuzhenzhi.cn/150.html)
+- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
+- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
+- [北医三院试管成功案例分析报告怎么写——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/18.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
