@@ -44,24 +44,24 @@
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/ygzdavuyhj.md)
-- [相关笔记](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/gjnoxiqpsi.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
-- [相关笔记](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/qcxcwhkjpx.md)
+- [手把手教你赴美做第三代试管婴儿：家庭必看全流程攻略](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/ygzdavuyhj.md)
+- [去美国做第三代试管婴儿5步搞定全流程+避坑秘籍](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/gjnoxiqpsi.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿7大必看攻略：高龄夫妻备孕的福音](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/atyendftoq.md)
+- [美国第三代试管婴儿攻略：成功率、费用、避坑秘籍一站式全解](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
+- [赴美做第三代试管婴儿全流程攻略：成功率、费用、医院怎么选](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
+- [全流程手把手：赴美第三代试管婴儿必看完整攻略](https://github.com/uo8lrun64a/mommy-baby-notes/blob/main/20260910xnzp/qcxcwhkjpx.md)
 
 ## 推荐站点
 
-- [详情点击](https://www.danqiushen.com/jiancha/)
-- [查看详情](https://www.danqiushen.com/26.html)
-- [查看详情](https://www.danqiushen.com/81.html)
-- [详情点击](https://www.danqiushen.com/131.html)
-- [查看详情](https://www.danqiushen.com/124.html)
-- [相关资讯](https://www.wuzhenzhi.cn/93.html)
-- [更多内容](https://www.wuzhenzhi.cn/16.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/57.html)
-- [查看详情](https://www.wuzhenzhi.cn/10.html)
+- [三代试管移植一个D3冻胚，一次着床成功率有多大？](https://www.wuzhenzhi.cn/40.html)
+- [上海国妇婴试管婴儿必读攻略：好不好、成功率怎么判断？（附就诊准备清单）](https://www.wuzhenzhi.cn/41.html)
+- [精子成活率为0能手术治疗后做试管吗？权威解读与生育路径分析](https://www.wuzhenzhi.cn/42.html)
+- [男性没精子做供精人授还是三代试管成功率高？一文讲清选择思路](https://www.wuzhenzhi.cn/43.html)
+- [试管婴儿胚胎移植成功后需要用药保胎到几个月？专业解析](https://www.wuzhenzhi.cn/44.html)
+- [浙江省妇保院试管婴儿医生怎么选？成功率与李晓青医生科普解读](https://www.wuzhenzhi.cn/45.html)
+- [三代试管基本不会胎停是谣言？身体状况差胎停育几率更大真相解析](https://www.wuzhenzhi.cn/46.html)
+- [试管移植后吃甲泼尼龙片有什么用处吗？医生开药的真实原因解析](https://www.wuzhenzhi.cn/47.html)
+- [PCC取卵针生产厂家与取卵针型号326350详解：试管婴儿取卵器械科普指南](https://www.wuzhenzhi.cn/48.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
