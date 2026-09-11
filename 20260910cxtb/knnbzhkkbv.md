@@ -408,13 +408,20 @@ PGT仅筛染色体，不着床还与内膜、免疫有关
 
 ## 推荐站点
 
-- [移植囊胚方案有哪些项目可以做？囊胚移植替代方案类型全解析](https://www.wuzhenzhi.cn/118.html)
-- [新疆佳音医院收费大全：试管婴儿费用明细与流程解读](https://www.wuzhenzhi.cn/119.html)
-- [北京哪个医院能做供卵试管——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/12.html)
-- [山东聊城市人民医院做试管吗要多少钱？附试管婴儿2万元补贴政策解读](https://www.wuzhenzhi.cn/120.html)
-- [西安试管婴儿多少钱一次？医保能报销吗？费用与报销全解析](https://www.wuzhenzhi.cn/121.html)
-- [做试管婴儿三次的成功案例有哪些视频？海外第三代试管婴儿成功案例分享](https://www.wuzhenzhi.cn/122.html)
-- [广西试管婴儿可以报销医保吗？2025最新政策与报销流程详解](https://www.wuzhenzhi.cn/123.html)
-- [山东省中医院西院区试管多少钱一个月费用？一次报销政策详解](https://www.wuzhenzhi.cn/124.html)
+- [['https://www.sjb493.cn/30996460907122.html', '代生公司官网-供卵代怀网价格表,国内做第三代试管比较厉害的医院大全']](https://www.sjb493.cn/30996460907122.html)
+- [['https://www.ewdboe.cn/227473678110.html', '贵州靠谱的私立供卵试管医院名单更新，2026供卵生男孩费用明细公开 ,代孕机构排名']](https://www.ewdboe.cn/227473678110.html)
+- [['https://www.luruihang.com/2329.html', '岳阳三代供卵代生子机构成功率高吗？岳阳做供卵代生子机构多少钱一医院']](https://www.luruihang.com/2329.html)
+- [['https://www.anyhdlyb.cn/2779166334698.html', '国内代怀产子_代生男孩流程,朔州3代试管要多少钱呀']](https://www.anyhdlyb.cn/2779166334698.html)
+- [['https://www.hghbjm.com/55.html', '南昌第三代试管婴儿多少钱呢？']](https://www.hghbjm.com/55.html)
+- [['https://www.dyokx.com/gaolingzhuyun/210.html', '哈萨克斯坦借卵做试管代生价格，15万多已足够！']](https://www.dyokx.com/gaolingzhuyun/210.html)
+- [['https://www.fmngst.com/3551216011017.html', '合肥造人工试管——合肥试管？附全新收费明细！']](https://www.fmngst.com/3551216011017.html)
+- [['https://www.cddyunw.com/422665636277.html', '借卵需要流程:痛经可以艾灸吗，痛经能吃止痛药吗']](https://www.cddyunw.com/422665636277.html)
+- [['https://www.sdwmtgccl.cn/55820239325557.html', '2026年在吉林省做试管生宝宝大概费用详细一览,附详细费用,试管代孕供卵子医院']](https://www.sdwmtgccl.cn/55820239325557.html)
+- [['https://www.sasksjob.com/426612112102.html', '卵巢早衰女性也能成功生育：试管助孕案例分享']](https://www.sasksjob.com/426612112102.html)
+- [['https://www.cd-hssf.com/124670367322.html', '供卵自怀三胎：黄体血肿月经后会消失吗']](https://www.cd-hssf.com/124670367322.html)
+- [['https://www.dygsdyw.com/222195516257.html', '苏州求助供卵试管,苏州正规的助孕机构有哪些？附排名前十榜单']](https://www.dygsdyw.com/222195516257.html)
+- [['https://www.jszgyh.com/306444969559.html', None]](https://www.jszgyh.com/306444969559.html)
+- [['https://www.hs52.cc/daihuainanhaijigou/371.html', '试管代生群-后位子宫怀孕后显怀吗']](https://www.hs52.cc/daihuainanhaijigou/371.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250427/6258.html', '中国哪里可以供卵啊_做三代试管代孕痛苦吗,试管移植前查了子宫内膜窗口期就']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250427/6258.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
