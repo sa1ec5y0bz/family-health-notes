@@ -79,13 +79,21 @@ L-T4的半衰期为7d，吸收缓慢而完全，每日晨间服药一次即可�
 
 ## 推荐站点
 
-- [山东供卵自怀成功率多少？卵子捐赠试管婴儿科普指南](https://www.wuzhenzhi.cn/58.html)
-- [试管婴儿移植前吃辅酶Q10好吗有影响吗？移植前是否需要补充详解](https://www.wuzhenzhi.cn/59.html)
-- [国内三代试管成功率最高的机构怎么看？科学解读PGT成功率与选择标准](https://www.wuzhenzhi.cn/60.html)
-- [移植后可以吃葱花卷吗？女性吃香葱对着床有影响吗](https://www.wuzhenzhi.cn/61.html)
-- [锦州妇婴医院试管成功率高吗？锦江妇幼试管成功率解析与备孕指南](https://www.wuzhenzhi.cn/62.html)
-- [湖南航天医院试管婴儿成功率多少？一文看懂数据与影响因素](https://www.wuzhenzhi.cn/63.html)
-- [合肥省立医院与合肥中山医院试管婴儿成功率解析：理性看待数据与选择](https://www.wuzhenzhi.cn/64.html)
-- [试管促排期可以吃玫瑰花酱吗？打促排可以吃苹果吗？饮食指南](https://www.wuzhenzhi.cn/65.html)
+- [['https://www.fmngst.com/1497061169216.html', '合肥有供卵吗,合肥借卵第三代试管婴儿价格多少？']](https://www.fmngst.com/1497061169216.html)
+- [['https://www.hghbjm.com/209.html', '代怀试管-南昌试管私立机构Top10排行']](https://www.hghbjm.com/209.html)
+- [['https://www.cd-hssf.com/326660669206.html', '常用抗生素药有哪些？抗生素会不会影响精子质量？']](https://www.cd-hssf.com/326660669206.html)
+- [['https://www.sasksjob.com/520682219157.html', '2026北京医院辅助生殖费用一览：公立与私立机构价格对比及省钱攻略']](https://www.sasksjob.com/520682219157.html)
+- [['https://www.mimi567.com/207.html', '代怀孕花费:国内最好的试管婴儿医院']](https://www.mimi567.com/207.html)
+- [['https://www.sdxxy.cn/20250606-494.html', '如何提高试管代生咨询成功率！最有效的方法还是得从自身入手']](https://www.sdxxy.cn/20250606-494.html)
+- [['https://www.hs52.cc/tesefuwu/68.html', 'tsh高需要中断促排卵针吗？tsh偏高能打疫苗吗？']](https://www.hs52.cc/tesefuwu/68.html)
+- [['https://www.dyqlsu.com/20250328-391.html', '国外合法代孕,解决输卵管堵塞的有效方案是什么']](https://www.dyqlsu.com/20250328-391.html)
+- [['https://www.zrbbavaq.cn/26766970209741.html', '提升做正规代生地址成功率的办法有哪些？']](https://www.zrbbavaq.cn/26766970209741.html)
+- [['https://www.hg00fj88.com/2231.html', '试管供卵助-北京试管婴儿医院能一次成功吗']](https://www.hg00fj88.com/2231.html)
+- [['https://www.cecigou.cn/zhengguidaiyunwang/20250928/15040.html', '妊娠糖尿病对胎儿智力影响']](https://www.cecigou.cn/zhengguidaiyunwang/20250928/15040.html)
+- [['https://www.dyokx.com/hangzhoudaihuaishiguan/355.html', '海外供卵代孕,取卵后卵巢80×60下个月移植冻胚流程是怎样的？']](https://www.dyokx.com/hangzhoudaihuaishiguan/355.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6098.html', '助孕网成功率-宜昌三代试管成功率是多少费用多少']](https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6098.html)
+- [['https://www.bjwdzxkj.cn/3809298864139.html', '2026年美国供卵代生中心最佳服务机构真实成功率(美国供卵代生中心成功率有多高)']](https://www.bjwdzxkj.cn/3809298864139.html)
+- [['https://www.3899234.com/20250927-5.html', '代怀孕花费&东莞第三代试管贵不贵']](https://www.3899234.com/20250927-5.html)
+- [['https://www.cxit.com.cn/daiyunbaobao/14159.html', '内膜CD138有3个阳性细胞影响移植吗？']](https://www.cxit.com.cn/daiyunbaobao/14159.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
