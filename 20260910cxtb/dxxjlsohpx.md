@@ -41,12 +41,21 @@ hCG的测定在临床工作中应用广泛，不同疾病有不同的表现，�
 
 ## 推荐站点
 
-- [三代试管生化两次有影响吗？原因分析与应对建议全解读](https://www.wuzhenzhi.cn/148.html)
-- [第三代试管婴儿技术怎么选医院？避开排名榜误区的实用指南](https://www.wuzhenzhi.cn/149.html)
-- [思则凯多少钱一支——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/15.html)
-- [柳州妇幼第三代试管单胎多少钱？费用构成与影响因素详解](https://www.wuzhenzhi.cn/150.html)
-- [试管不成功查免疫要多少钱呀一次——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/16.html)
-- [北三医院试管婴儿费用大概多少钱一次啊——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/17.html)
-- [北医三院试管成功案例分析报告怎么写——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/18.html)
+- [['https://www.mimi567.com/82.html', '正规试管代怀:2次稽留流产可以做试管-稽留流产两次去做什么检查']](https://www.mimi567.com/82.html)
+- [['https://www.cxit.com.cn/daiyunmama/14212.html', '国内试管供卵_试管捐卵中心,深圳哪里可以做三代试管婴儿？2026试管婴儿']](https://www.cxit.com.cn/daiyunmama/14212.html)
+- [['https://www.hghbjm.com/209.html', '代怀试管-南昌试管私立机构Top10排行']](https://www.hghbjm.com/209.html)
+- [['https://www.sgdaiyun.com/204263342246.html', None]](https://www.sgdaiyun.com/204263342246.html)
+- [['https://www.esc45.com/61.html', '助孕试管电话-沈阳妇婴做三代试管成功率高吗？']](https://www.esc45.com/61.html)
+- [['https://www.cddyunw.com/421771660401.html', '宝宝第11天迎来翻倍喜讯，我的辅助生殖旅程']](https://www.cddyunw.com/421771660401.html)
+- [['https://www.sdwmtgccl.cn/60035634855180.html', '鞍状子宫可做试管吗？辅助生殖技术助您代怀生子，详解代生与供卵代怀方案']](https://www.sdwmtgccl.cn/60035634855180.html)
+- [['https://www.skiguo.cn/20260903-442.html', '【全面解析】山东辅助生育合法吗？青岛供卵助孕政策法规与伦理边界一文读懂']](https://www.skiguo.cn/20260903-442.html)
+- [['https://www.3899234.com/20250927-246.html', '代生最权威&，东莞试管费用东莞私立试管医院做第二代试管费用[广东试管婴儿]']](https://www.3899234.com/20250927-246.html)
+- [['https://www.xmxinyhwzhs.cn/22452268548014.html', '甘肃试管供卵代生的医院促排没效果(甘肃试管供卵代生的医院促排没感觉正常吗)']](https://www.xmxinyhwzhs.cn/22452268548014.html)
+- [['https://www.fmngst.com/1040513286092.html', '2026安徽省立医院做试管婴儿全流程收费明细表有吗？']](https://www.fmngst.com/1040513286092.html)
+- [['https://www.eduency.com/115620575327.html', '深圳三代代怀公司,深圳第三代做试管可以选男女吗(深圳三代试管费用明细)']](https://www.eduency.com/115620575327.html)
+- [['https://www.ppmaas.com/baoshengnanhaishiguan/392.html', '第一代国外供卵代生机构和第二代国外供卵代生机构的费用哪个更高']](https://www.ppmaas.com/baoshengnanhaishiguan/392.html)
+- [['https://www.dygsdyw.com/228660024131.html', '代怀生男孩:试管三个月内为什么不能吃番茄？试管怀孕后可不可以吃番茄？']](https://www.dygsdyw.com/228660024131.html)
+- [['https://www.syldezdhkj.cn/32706393112142.html', '广东第三代试管大概需要多少费用？哪个医院试管成功率高？,代孕机构咨询电话']](https://www.syldezdhkj.cn/32706393112142.html)
+- [['https://www.monpun.com/6468939052556.html', '2026年深圳试管助孕：无需结婚证的医院专家推荐与生育新希望']](https://www.monpun.com/6468939052556.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
